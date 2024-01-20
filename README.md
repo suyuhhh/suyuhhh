@@ -10,11 +10,11 @@ here is a picture of my techcher
 
 His favorite quote is > to be or not to be 
 
--hii idontknow
+- hiiidontknow
 
 
--okay
+- okay
 
 
--hahhhha
+- hahhhha
 
