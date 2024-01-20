@@ -11,6 +11,10 @@ here is a picture of my techcher
 His favorite quote is > to be or not to be 
 
 -hii idontknow
+
+
 -okay
+
+
 -hahhhha
 
